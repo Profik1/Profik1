@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kotenji Mikhai.
+- 👋 Hi, I’m Kotenji Mikhail.
 - 👀 I’m interested in nterested in different programming programs.
 - 🌱 I’m currently learning at the TOR Academy.
 - 💞️ I’m looking to collaborate on I think so far.
